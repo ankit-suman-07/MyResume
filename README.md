@@ -19,7 +19,7 @@
 
 - 📫 How to reach me **ankitsuman07@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/drive/folders/1q0VAkVZsOeSyrKbJ7a7FxCocBggHHeZC?usp=drive_link](https://drive.google.com/drive/folders/1q0VAkVZsOeSyrKbJ7a7FxCocBggHHeZC?usp=drive_link)
+- 📄 Know about my experiences [Resume](https://flowcv.com/resume/uqep61u0b3)
 
 - ⚡ Fun fact **My humour mostly lies in Dark Mode.**
 
